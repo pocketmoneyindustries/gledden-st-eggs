@@ -11,7 +11,7 @@ This is how it works:
 
 ## Price
 
-The price is $1/egg, and goes to a very worthy cause. We are saving up for a real Iron Man suit or jet pack (and a pony).
+The price is $1/egg, and goes to a very worthy cause. We are saving up for an Iron Man suit and a pony.
 
 
 ## Delivery
@@ -19,9 +19,11 @@ The price is $1/egg, and goes to a very worthy cause. We are saving up for a rea
 There are two delivery options:
 
  * For the small fee of $1/delivery, we can bring the eggs around to your house after school. Gledden St and Welsh Place only. Cash on delivery, please have correct change.
- * You can collect the eggs from the front porch at no. 20, and leave the money in our honesty-box.
+ * You can collect the eggs from the front porch at no. 20, and leave the payment in our honesty-box.
 
 
 ## Cartons
 
-Out happy hens make a lot of eggs, and we need recycled cartons to put them in. It would help us a lot if you gave us an empty carton when we give you one with eggs in it. If you have spare cartons that you would like to recycle, you can give them to us. 
+Out happy hens make a lot of eggs, and we need recycled cartons to put them in. It would help us a lot if you gave us an empty carton when we give you one with eggs in it.
+
+If you have spare cartons that you would like to recycle, you can give them to us too. 
