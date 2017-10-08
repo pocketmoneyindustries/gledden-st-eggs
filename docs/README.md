@@ -2,9 +2,9 @@
 
 This is how it works:
 
- * Sign up to our newsletter
- * we will let you know when there are fresh eggs for sale
- * tell us you want some and we will bring them round to you
+ * [Sign up to our newsletter](http://eepurl.com/c6B-oP)
+ * We will use this to let you know when there are fresh eggs for sale
+ * Tell us you want some, and we will bring them to you
 
 ![Gledden St Bird]({{ site.url }}/gledden-st-eggs/img/chook_pic.jpg)
 
