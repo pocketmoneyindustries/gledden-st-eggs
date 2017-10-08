@@ -1,2 +1,5 @@
 # gledden-st-eggs
-prototype enterprise - one modern urban flock
+
+Apocket money industry, a modern urban flock.
+
+https://pocketmoneyindustries.github.io/gledden-st-eggs/

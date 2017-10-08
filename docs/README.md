@@ -3,7 +3,7 @@
 This is how it works:
 
  * Sign up to our newsletter
- * we will let you know when there are fresh spare eggs for sale
+ * we will let you know when there are fresh eggs for sale
  * tell us you want some and we will bring them round to you
 
 ![Gledden St Bird]({{ site.url }}/gledden-st-eggs/img/chook_pic.jpg)
@@ -24,6 +24,14 @@ There are two delivery options:
 
 ## Cartons
 
-Out happy hens make a lot of eggs, and we need recycled cartons to put them in. It would help us a lot if you gave us an empty carton when we give you one with eggs in it.
+Out happy hens make a lot of eggs, and we need recycled cartons to put them in. It would help us a lot if you gave us an empty carton when we give you one with eggs in it. If you have spare cartons that you would like to recycle, you can give them to us. 
 
-If you have spare cartons that you would like to recycle, you can give them to us too. 
+
+## Feedback
+
+We are happy to get any feedback from you, we would like to know if you think the prices are too high and tell us what they should be, or maybe you would like to tell us how good our eggs are. If you do have any criticism, please tell it to us constructivley, because then we can turn that constructive critisism into actual stuff that you suggested to us. 
+
+Thanks!
+
+ - Lila, Alek, Lazy, T-rex, Crow, Dream, Holly and Lucky 
+
