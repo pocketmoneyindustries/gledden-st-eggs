@@ -22,6 +22,6 @@ There are two delivery options:
  * You can collect the eggs from the front porch at no. 20, and leave the money in our honesty-box.
 
 
-# Cartons
+## Cartons
 
 Out happy hens make a lot of eggs, and we need recycled cartons to put them in. It would help us a lot if you gave us an empty carton when we give you one with eggs in it. If you have spare cartons that you would like to recycle, you can give them to us. 
