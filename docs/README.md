@@ -27,10 +27,10 @@ There are two delivery options:
 Out happy hens make a lot of eggs, and we need recycled cartons to put them in. It would help us a lot if you gave us an empty carton when we give you one with eggs in it. If you have spare cartons that you would like to recycle, you can give them to us. 
 
 
-##Feedback
+## Feedback
 
-We are happy to get any feedback from you, we would like to know if you think the prices are too high and tell us what they should be, or maybe you would like to tell us how good our eggs are. If you do have any criticizm, please tell it to us constructivley, because then we can turn that constructive critisizm into actual stuff that you suggested to us. 
+We are happy to get any feedback from you, we would like to know if you think the prices are too high and tell us what they should be, or maybe you would like to tell us how good our eggs are. If you do have any criticism, please tell it to us constructivley, because then we can turn that constructive critisism into actual stuff that you suggested to us. 
 
 Thanks!
 
-        - Lila, Alek, Lazy, T-rex, Crow,Dream, Holly and Lucky 
+ - Lila, Alek, Lazy, T-rex, Crow, Dream, Holly and Lucky 
