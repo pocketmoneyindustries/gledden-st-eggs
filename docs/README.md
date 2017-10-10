@@ -11,7 +11,7 @@ This is how it works:
 
 ## Price
 
-The price is $1/egg, and goes to a very worthy cause. We are saving up for an Iron Man suit and a pony.
+The price is $0.75/egg, and goes to a very worthy cause. We are saving up for an Iron Man suit and a pony.
 
 
 ## Delivery
