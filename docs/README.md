@@ -21,17 +21,6 @@ There are two delivery options:
  * For the small fee of $1/delivery, we can bring the eggs around to your house after school. Gledden St and Welsh Place only. Cash on delivery, please have correct change.
  * You can collect the eggs from the front porch at no. 20, and leave the payment in our honesty-box.
 
-
-## Cartons
-
-Out happy hens make a lot of eggs, and we need recycled cartons to put them in. It would help us a lot if you gave us an empty carton when we give you one with eggs in it. If you have spare cartons that you would like to recycle, you can give them to us. 
-
-
 ## Feedback
 
-We are happy to get any feedback from you, we would like to know if you think the prices are too high and tell us what they should be, or maybe you would like to tell us how good our eggs are. If you do have any criticism, please tell it to us constructivley, because then we can turn that constructive critisism into actual stuff that you suggested to us. 
-
-Thanks!
-
- - Lila, Alek, Lazy, T-rex, Crow, Dream, Holly and Lucky 
-
+Please use [this form](https://gitreports.com/issue/yaya-galah/gledden-st-eggs) to give us comments, feedback or suggestions (or ask us how our chooks are going). We encourage you to use this form so we can make Pocket Money Industries better. 
